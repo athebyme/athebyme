@@ -1,1 +1,1 @@
-ITMO 2'nd grade student \ Software Engineer
+ITMO 3'nd grade student \ Software Engineer
